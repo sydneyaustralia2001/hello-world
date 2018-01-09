@@ -9,3 +9,4 @@ Cool cool.
 I should go finnish my hw.
 Ok have a good rest of the day.
 You too bye
+bye 
